@@ -10,13 +10,13 @@
 
 - February 25: [Northeast Park Duathlon](https://runsignup.com/Race/NC/Gibsonville/NEParkDuathlon) :bicyclist: :running_man: -
 
-- March 19: [Tobacco Road Marathon and Half Marathon](https://tobaccoroadmarathon.com/details) 🏃‍♂️ - 
+- March 19: [Tobacco Road Half Marathon](https://tobaccoroadmarathon.com/details) 🏃‍♂️ - 
 
 <!--- Gran Fondo Florida:  March 19, 2023-->
 
 <!--- Tour of Georgia Grand Fondo:  April 16, 2023-->
 
-- April 14-16: [Collegiate Club Nationals: Olympic Distance](https://www.usatrichamps.com) :swimming_man: :bicyclist: :running_man: - 
+- April 14-16: [Collegiate Club Nationals Olympic Distance](https://www.usatrichamps.com) :swimming_man: :bicyclist: :running_man: - 
 
 - April 23: [Tar Heel Double Down 14 Mile Challenge](https://capstoneraces.com/tar-heel-10-miler/results-and-photos/) :running_man: - 
 
