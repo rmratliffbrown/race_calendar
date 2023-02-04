@@ -6,7 +6,7 @@
 
 - November 24: [Raleigh Turkey Trot](https://ridgewoodturkeytrot.itsyourrace.com/event.aspx?id=4847) 🏃‍♂️ - [36:50](https://ridgewoodturkeytrot.itsyourrace.com/Results.aspx?id=4847&y=&eid=&srch=Rashaad%20&g=&amin=&amax=)
 
-- February 4: [Krispy Kreme Challenge](https://krispykremechallenge.com) 🏃‍♂️ :doughnut: - 
+- February 4: [Krispy Kreme Challenge](https://krispykremechallenge.com) 🏃‍♂️ :doughnut: - [48:33](https://www.itsyourrace.com/results.aspx?id=89&y=&eid=&srch=rashaad&g=&amin=&amax=)
 
 - February 25: [Northeast Park Duathlon](https://runsignup.com/Race/NC/Gibsonville/NEParkDuathlon) :bicyclist: :running_man: -
 
