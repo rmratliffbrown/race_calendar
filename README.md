@@ -8,7 +8,7 @@
 
 - February 4: [Krispy Kreme Challenge](https://krispykremechallenge.com) 🏃‍♂️ :doughnut: - [48:33](https://www.itsyourrace.com/results.aspx?id=89&y=&eid=&srch=rashaad&g=&amin=&amax=)
 
-- February 25: [Northeast Park Duathlon](https://runsignup.com/Race/NC/Gibsonville/NEParkDuathlon) :bicyclist: :running_man: -
+- February 25: [Northeast Park Duathlon](https://runsignup.com/Race/NC/Gibsonville/NEParkDuathlon) :bicyclist: :running_man: - [1:01:57](https://www.trisignup.com/Race/Results/26521/IndividualResult/GfbP?resultSetId=367212#U51753724)
 
 - March 19: [Tobacco Road Half Marathon](https://tobaccoroadmarathon.com/details) 🏃‍♂️ - 
 
